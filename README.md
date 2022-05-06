@@ -1,0 +1,2 @@
+Hi👋My name is Thelmian.
+I work at Thelms collectibles as the CEO. I focus more on sewing and giving out quality and beautiful clothing to individuals and prospective corp members and also studying to become a digital marketer. Before that, I was a student at the University of Benin, where I bagged a BSc in international studies and diplomacy. I am currently looking out for opportunities to further my education, have a few digital skills, and meet business-minded people
